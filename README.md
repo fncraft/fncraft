@@ -1,3 +1,2 @@
-i write malformed code.
-
-i smile when i write good code.
+in high school
+I wanna be a master
